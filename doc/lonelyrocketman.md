@@ -1,5 +1,5 @@
 - Bryan
 - China
 - Susi
-- Basketball
+- Basketball/Swimming
 - Blue
